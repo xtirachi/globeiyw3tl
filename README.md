@@ -1,1 +1,0 @@
-# globeiyw3tl
